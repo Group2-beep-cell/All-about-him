@@ -7,3 +7,4 @@ The concept of God as a creator is a deeply held belief in many religions. Some 
 - *Faith and worship:* People often express gratitude, reverence, and devotion to God as their creator.
 
 This belief can bring comfort, meaning, and guidance to individuals. Do you have a specific question about this topic?
+                                        https://media.tenor.com/G8uZSjGv7zIAAAAM/kiashyy-made-by-kiashyy.gif
